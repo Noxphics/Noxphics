@@ -5,7 +5,7 @@
 
 🔧 Work in progress www.noxphics.com
 
-🔗 instagram.com/noxphics
+🔗 www.instagram.com/noxphics
 
 
 
