@@ -1,5 +1,5 @@
 👤 Denny <br>
-👩🏻‍💻 Web developer <br>
+💻 Web developer <br>
 📷 Noxphics photography <br>
 🎨 Graphic designer <br>
 
